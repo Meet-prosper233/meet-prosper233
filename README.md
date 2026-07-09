@@ -24,7 +24,7 @@ Welcome to my GitHub profile!
 ## 📫 How to Reach Me
 
 - 💬 Ask me about anything [here on GitHub](https://github.com/Meet-prosper233)
-- 📧 Email: [prosperetimasuquo@example.com]( Twitter x: @Uniquebeing404 )
+- 📧 Email: [prosperetimasuquo@gmail.com]( Twitter x: @bosspatrick22 )
 - 
 ## 🌟 Recent Projects
 
